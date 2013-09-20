@@ -1,0 +1,2 @@
+Komozilla-Sticker
+=================
